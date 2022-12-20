@@ -1,0 +1,5 @@
+# How Much Fiber?
+
+A question was asked in one of the health groups about what is the daily requirement for fiber. In US the recommendation is 38 grams for men and 25 grams for women, aged under 50.This reduces for older people. But in US some recommendations are not based on pure science and instead influenced by what people are likely to do. Recommendation for daily exercise is also so influenced. The thought behind this is that, why recommend something that is totally going to discourage the public at large. 
+When it comes to fiber there is sufficient evidence that shows that our ancestors ate more than 100 grams of fiber each day. Even today in many parts of Africa people eat over 100 grams of fiber each day. In rural China this figure is 77 grams. 
+On a related subject it is interesting to note that how many times we poop and how much we poop each week has direct correlation with heart health. In one of the studies it was found that residents of Manhattan score lowest on both these criteria and have the highest heart attack rates. The following videos pertain to this subject. 👇
