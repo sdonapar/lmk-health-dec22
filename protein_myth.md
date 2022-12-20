@@ -36,7 +36,10 @@ Please watch the talk about dangers of excessive protein in the following video 
 some people have difficulty in coming to grips with my views on Protein Myth. Here is an article that describes well the subject and you may benefit from reading it. It also has a sizable reference which can be accessed on internet for more information.
 
 The Protein Myth - Artile
+
 ![The Protein Myth-1](./images/The%20Protein%20Myth-1.jpeg)
+
 ![The Protein Myth-2](./images/The%20Protein%20Myth-2.jpeg)
+
 ![The Protein Myth-3](./images/The%20Protein%20Myth-3.jpeg)
 
