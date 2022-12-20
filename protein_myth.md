@@ -37,7 +37,7 @@ some people have difficulty in coming to grips with my views on Protein Myth. He
 
 The Protein Myth - Artile
 
-![The Protein Myth-1](./images/The%20Protein%20Myth-1.jpeg "The Protein Myth-1")
+![The Protein Myth-1](./images/TheProteinMyth-1.jpeg "The Protein Myth-1")
 
 ![The Protein Myth-2](./images/The%20Protein%20Myth-2.jpeg "The Protein Myth-2")
 
