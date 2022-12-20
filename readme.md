@@ -7,3 +7,24 @@
 ### [1.4 Many Reasons for PBWF](./many_reasons_for_pbwf.md)
 
 [H.O.P.E. What You Eat Matters (2018) - Full Documentary (Subs: FR/PT/ES/ZH/NL)](https://youtu.be/FprMvJYnD44)
+
+### [1.5 One Diet for All Ills](./one_diet_for_all_ills.md)
+### [1.6 CHANGES: BIG & SMALL](./changes_big_and_small.md)
+### [1.7 ANECDOTAL EVIDENCE](./anecdotal_evidence.md)
+### [1.8 CONFLICTING VIEWS](./conflicting_views.md)
+### [1.9 DOCTORS LACK NUTRITION TRAINING](./doctors_lack_nutrition_training.md)
+### [1.10 REDUCING MEDICATIONS](./reducing_medications.md)
+### [1.11 PLAYING WITH A PARTIAL DECK](./playing_with_a_partial_deck.md)
+### [1.12 HUMAN  EVOLUTION](./human_evolution.md)
+### [1.13 Five Pillars of Health](./five_pillars_of_health.md)
+
+### [2.1 FOOD](./food.md)
+### [2.2 DIET & LIFESTYLE MYTHS](./diet_and_lifestyle_myths.md)
+### [2.3 PROTEIN MYTH](./protein_myth.md)
+["The Dangerous Truth About Protein" - Janice Stanger, Ph.D.](https://youtu.be/2R07FL1wVo4)
+[The Perception Problem with Protein](https://www.drmcdougall.com/2019/06/14/perception-problem-with-protein/)
+
+### [2.4 Healthy vs Unhealthy](./healthy_vs_unhealthy.md)
+### [2.5 Everything in Moderation](./everything_in_moderation.md)
+### [2.6 Better Safe Than Sorry](./better_safe_than_sorry.md)
+### [Documentaries]()

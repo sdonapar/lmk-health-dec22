@@ -1,0 +1,6 @@
+# 1.10 REDUCING MEDICATIONS
+
+Dr. McDougall who is my teacher, conducts a 10 day live-in program here in the Santa Rosa suburb of SanFrancisco Bay Area. He asks all his patients to drop most medications on day one. For ten days he feeds all patients nothing but plant based whole food and teaches them about nutrition as I am doing in these health groups. By the 10th day many patients find that their BP, blood sugars and cholesterols have lowered substantially. 
+We must keep in mind that all these patients are under constant supervision of a doctor. 
+It is inappropriate for me to suggest such a drastic step. 
+The most of concern are the folks who are taking insulin for their diabetics. They already know that insulin dose should be reduced based on their blood glucose readings and hopefully they are doing that. I know of few people who totally stopped insulin. Dr. McDougall suggests that blood sugar spikes after meals in the range of 250 to 300 are nothing to worry about. For insulin takers hypoglycemia (low sugar) is a more serious issue than hyperglycemia. One of my batch mates fainted once due to hypoglycemia because he did not reduce insulin dose in spite of experiencing lowered blood glucose levels. Those who are on diabetic medications need to watch carefully. It is only appropriate to reduce medication when your blood glucose reading are coming down.
