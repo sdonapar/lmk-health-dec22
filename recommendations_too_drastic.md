@@ -1,0 +1,7 @@
+# Recommendations Too Drastic
+
+Some people in every group complain that my recommendations are too drastic and can cause harm. Here is my response to that. 👇
+
+I have not told you about speed of changes. I have only mentioned where one need to get. Not all people who are sedentary can walk 10,000 steps the very next day.  Many people  can’t reduce eating window from 15 hrs to 8 hours all of a sudden. I recommend that you reduce it slowly at a pace you can. On other matters things are not as difficult. Eating more fruits is rarely a problem. Eating a tablespoon of flaxseed or 5 walnuts is rarely a problem. Eating boiled potatoes instead of French fries is rarely a problem. Not eating oil or ghee is not a problem once you have learned how to cook with vegetable stock and nut butters. Green juicing does cause stomach issues in some, that is why I covered that in the very beginning. 
+The Giants in the PBWF field like Dr. Collin Campbell, Dr. Caldwell Esselstyn, Dr. John McDougall, Dr. Dean Ornish, Dr. Michael Greger and others do warn of resistance one can expect from many conventional doctors. In fact in Dr. McDougall’s Advanced Study programs a whole talk is dedicated by Dr. Doug Lisle a Stanford University psychologist on what kind of resistance one can expect from Pharma, Food and Health Care industries. I will cover that in the fourth week. 
+I have explained in two posts why making only small changes runs the risk of loosing confidence and giving up.

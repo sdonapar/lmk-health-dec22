@@ -59,3 +59,58 @@
 [How to Make Your Own Fruit and Vegetable Wash](https://youtu.be/_2H3rg42wP8)
 
 [What Happens To Body When You Eat Oatmeal Every Day!](https://youtu.be/UmAUkwG9OuY)
+
+[No Oil -- Not Even Olive Oil! - Caldwell Esselstyn MD](https://youtu.be/b_o4YBQPKtQ)
+
+[Minimum Recommended Daily Allowance of Antioxidants](https://youtu.be/yVjTKBw7_To)
+[How to Reach the Antioxidant RDA](https://youtu.be/rZQf-9rV9XM)
+[Antioxidant Content of 300 Foods](https://youtu.be/ss6bwKdOgXg)
+[New Antioxidant Superstars](https://youtu.be/11jKOjhsij8)
+[Antioxidant Rich Foods With Every Meal](https://youtu.be/onH9lKMi5mc)
+[Antioxidant content of 3,139 foods](https://youtu.be/uqQLpXQqMGo)
+[Best Antioxidant Drinks Even Better Than Green Tea ? | Dr.Michael Greger](https://youtu.be/gRmAcyFuVZw)
+
+[Prebiotics & probiotics](https://youtu.be/0z47wLZ4-O4)
+[Prebiotics: Tending Our Inner Garden](https://youtu.be/bbHZdQGZqS0)
+
+[Do We Need Vitamins & Supplements - Dr. John McDougall](https://youtu.be/q1GSd5AhmO8)
+[Oils & Supplements (Vit D, Vit B12 & Probiotics) in Plant-Based Eating with Dr. John McDougall](https://youtu.be/PkzcOY9LmgM)
+[McDougall Newsletter Confessions of a Fish Killer](https://www.drmcdougall.com/misc/2007nl/jun/confessions.htm)
+[An Important Trace mineral: Magnesium](http://www.lukecoutinho.com/blog/nutrition-en/an-important-trace-mineral-magnesium/)
+
+[MCD Sunshine & Vitamin D](https://youtu.be/d2zCUyppVd0)
+
+[Who Says Eggs Aren't Healthy or Safe?](https://youtu.be/RtGf2FuzKo4)
+[Eggs vs. Cigarettes in Atherosclerosis](https://youtu.be/rO4kdtMq8rs)
+[Dr. Michael Greger Exposes The Truth About The Egg Industry](https://youtu.be/UdO4fLO9DcM)
+[Do Eggs Raise Cholesterol?](https://youtu.be/t9BDX6wSSk0)
+[Eggs and Diabetes](https://youtu.be/y96iiU31ySs)
+[Eggs and Arterial Function](https://youtu.be/PuRnT_ojwQU)
+
+[Alkaline water: a scam?](https://youtu.be/wpYO_3nTsNo)
+
+[Best Way to Cook Vegetables](https://youtu.be/z1hqNPl-BWw)
+[Best cooking method.](https://youtu.be/CblEnrysVIA)
+[How to Cook Greens.](https://youtu.be/ydtK-MPyCig)
+[Does Pressure cooking preserve nutrients?](https://youtu.be/NA7emq1WrBo)
+[The dangers of baked potatoes](https://youtu.be/Wk2JMT3EvA8)
+[Lycopene benefits; Raw vs cooked tomatoes](https://youtu.be/yK-dSSmEwmQ)
+[Toxins in raw mushrooms?](https://youtu.be/10ildN-vCfc)
+
+[Dangerous Cookware We Should Not Use! Which Cookware Is Safe? Dr Goldhamer & Dr Greger](https://youtu.be/gC3x4nQQYu8)
+
+[You Can't Reheat Some Foods Under Any Circumstances](https://youtu.be/P2BVyHOdFUo)
+[Here’s How Long Your Fresh Produce Will Really Last](https://www.tasteofhome.com/article/heres-how-long-your-fresh-produce-will-really-last/)
+
+[The Truth About Starch (Anti Wheat Belly & Grain Brain)](https://youtu.be/VO3LseIsfRQ)
+[Paleo, Gluten Free, and GMO Distractions from Real World Food Problems](https://youtu.be/2KV2N-m4Jgo)
+[Gluten-Free Diets - Separating the Wheat from the Chat](https://youtu.be/qBXE28jMWdY)
+
+[The Truth about Soy](https://youtu.be/wu2OjHvXFVw)
+
+[Go ahead - use a little salt if you want.](https://youtu.be/aVtOzOROUqE)
+
+
+
+
+
