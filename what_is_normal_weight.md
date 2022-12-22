@@ -1,0 +1,18 @@
+# What is Normal Weight?
+
+I often receive requests from some Indian members to guide them to gain weight. Obviously they think they are underweight otherwise they wouldn’t be asking for such help. My typical response is to tell them that they definitely don’t want to acquire fat weight, as that is unhealthy. So they need to gain some muscle weight. The only way to gain muscle weight is to put them through stress training. Going to gym and working out is the best way but even at home one can do some dumb bells or free hand exercises like push-ups, pull-ups, squats, and sit-ups etc. 
+When I probe further as to what their Body Mass Index is, I get responses like 21, 22 etc. There seems to be quite a misunderstanding as to what is a healthy weight. 
+
+In US, the guidelines for weight in terms of Body Mass Index (BMI) are as following:
+Severely Underwt = 15 to 16
+Underweight = 16 to 18.5
+Normal = 18.5 to 25
+Overweight = 25 to 30
+Obese = 30 to 35
+Morbidly Obese = Over 35
+
+The question that comes to mind is whether these standards are appropriate for Indian population. Indians generally have narrower body frame as compared to Americans. Also traditionally Indians do not place enough emphasis on physical training in young age and more emphasis is placed on education. (I recall when I entered IITK at the age of 16, my BMI was 17) As a result the muscles never fully develop. 
+These two factors suggest that the above table for Indians should have lower numbers. 
+As I researched into this subject, I found that there have been efforts to modify these guidelines for Indians. Several studies have been done in this area and WHO experts in 2000 had recommended that upper limit for the Normal should be lowered to 23 from 25 for cutoff to overweight category. They also recommended that the cutoff for obesity should be lowered to 27. This however was not implemented at the time. Nine years later In year 2009 a panel of more than 100 Indian medical experts representing reputed medical institutions, hospitals, government-funded research institutions, and policy-making bodies participated to develop Asian Indian-specific guidelines for defining and managing overweight and obesity. The consensus guidelines defined overweight as those with BMI between 23 and 25 and obesity as those having BMI greater than 25. They did not address the issue of underweight and kept the lower ranges the same. 
+This is a major change and all should take a note of it. Many in this group who have taken comfort in reaching a target of 25 please note that you should really try to go further down to 23. I have always maintained that most people on PBWF/IF/10K would stabilize in the range of 21-23. Many of you, who have been asking me to help you gain weight, should take comfort in the fact that you are not sick or underweight and really need not worry unless your BMI is under 16. 
+Recent data show that in India, almost 13–50% of the urban population and 8–38% of the rural population suffers from obesity. The rising prevalence of overweight and obesity in India has resulted in an increased prevalence of obesity-related co-morbidities; hypertension, the metabolic syndrome, dyslipidemia, type 2 diabetes mellitus, cardiovascular disease, non-alcoholic fatty liver disease, obstructive sleep apnea, and certain cancers. It has been repeatedly demonstrated that the Asian Indians manifest clustering of cardiovascular risk factors and T2 Diabetes at lower levels of body mass index (BMI) in comparison to the age-matched white Caucasians.

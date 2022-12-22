@@ -1,0 +1,12 @@
+# CHEAT DAYS
+
+A question is often asked about cheat days. When meeting, friends and family, business acquaintances outside of our homes, weddings, parties etc, we are faced with situations where the food is not PBWFood compliant or the eating window can not be maintained. So the question is how to deal with it? In this post I want to cover such issues. 
+1. As far as physical activity is concerned it is not critical that each day be fully compliant. It is perfectly alright to maintain a weekly average of 70,000 steps. So if you are not able to make 10,000 steps, just make up on the next day or, if you have advance notice, you can do extra steps on the day before. 
+2. As far as maintaining an eating window of 8 hours is concerned, again it is no big deal. If on a particular day your eating window is longer, just make up on the adjoining day by narrowing down your eating window, as long as the weekly average is maintained at 8 hours or less. 
+3. On the issue of compliance to PBWFood, it is easier if you are on a budget of two teaspoons of oil and sugar. When ever you find yourself consuming more oil or sugar than allowed, just make up for it by eating less oil and sugar on the following or the preceding days. 
+4. If you are still on medications and do not have a daily allowance available to offset, the best approach is to make up by doing additional water fast, over and above your biweekly fast. 
+5. When faced with buffet meals, most buffets have some dishes which are safe like salads, lentils, rice and bread. Some also have fruit salads and potato chat. You have to make your own selection. 
+6. Soon the word spreads and your friends will know that you have dietary restrictions. If you are a leader within your social group, you will find that within 3 months every one will be following you. If not, but your friends are good friends they will start making some dishes for you. If not, it is time for you to drop them and make new friends. 
+7. Sometimes It is not a bad idea to eat before going to such parties. 
+8. If you find that you were forced to eat something unhealthy, you can always compensate by doing a 24 hour water fast the next day. My wife and I fast every week, it makes it easy to make exceptions. 
+9. Remember water fasting or dry fasting are the two most powerful tools in your Arsenal. Use them whenever you confront a cheat day.

@@ -110,6 +110,12 @@
 
 [Go ahead - use a little salt if you want.](https://youtu.be/aVtOzOROUqE)
 
+[Do the Pros of Brown Rice Outweigh the Cons of Arsenic?](https://youtu.be/Rn5axlyT0jM)
+[Which Rice Has Less Arsenic: Black, Brown, Red, White or Wild?](https://youtu.be/LVS5Q3E_Zxg)
+[Is It Worth Switching from White Rice to Brown?](https://youtu.be/nfxDhpEAgYQ)
+[How to Cook Rice to Lower Arsenic Levels](https://youtu.be/H_Lui1v2A1M)
+[Brown, Black, Purple and Red Unlike White on Rice](https://youtu.be/LGK2UtbPlzM)
+
 
 
 
