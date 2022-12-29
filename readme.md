@@ -305,6 +305,129 @@ Except for deep fried dishes, you should not have any problem in cooking. Here i
 
 ### [FAQs Week-2](./faqs_week_2.md)
 
+### [Detoxification](./detoxification.md)
+
+### [Major Sources of Toxins](./major_sources_of_toxins.md)
+
+### [GRAS & CRISCO](./gars_and_criso.md)
+
+[Generally Recognized As Safe? Food Additives Secrets | Video](https://youtu.be/opDYaKdzIqo)
+
+[Fish Consumption Associated With Brain Shrinkage](https://youtu.be/X_RKtP4D9uI)
+
+[Heavy Metals in Protein Powder Supplements](https://youtu.be/Nd8CBTF3nyo)
+
+[Male Fertility and Diet](https://youtu.be/UOFw_6C-rHg)
+
+[Filled Full of Lead](https://youtu.be/D_YZ4lB9Eik)
+
+[Cadmium and Cancer: Plant vs. Animal Foods](https://youtu.be/MTGAPZx6Ebw)
+
+[Antiperspirants and Breast Cancer](https://youtu.be/ZZ5UAxKayhs)
+
+[How Much Lead Is in Organic Chicken Soup (Bone Broth)?](https://youtu.be/PgAlIqnIop8)
+
+### [DIABETES NEWS](./diabetes_news.md)
+
+[Intermittent Fasting Completely Reverses Type 2 Diabetes in Study](https://scitechdaily.com/intermittent-fasting-completely-reverses-type-2-diabetes-in-study/)
+
+### [Intermittent Fasting - SIDE  EFFECTS](./intermittent_fasting_side_effects.md)
+
+### [Intermittent Fasting (IF)](./intermittent_fasting_if.md)
+
+[A Nobel Prize Diet](https://youtu.be/bo2n50O3orY)
+
+[A One-Day Starvation Secret Got the Nobel Prize](https://youtu.be/gl8k2ncIQMc) Mustwatch
+
+[Time Restricted Eating Put to the Test](https://youtu.be/kRR8ouOPttE)
+
+[The Benefit of Early Time Restricted Eating](https://youtu.be/1cAhfZa1Rac)
+
+### [Therapeutic Fasting](./therapeutic_fasting.md)
+
+[World’s largest Fasting Study (2020)](https://youtu.be/6b-EqKYv314)
+
+[Dr. Guido Kroemer on Autophagy, Caloric Restriction Mimetics, Fasting & Protein Acetylation](https://youtu.be/Gm626MgpveI)
+
+[TrueNorth Health Video Brochure](https://youtu.be/MAZeWlIpT_c)
+
+### [Dry Fasting: A Russian Experiment](./dry_fasting_a_russian_experiment.md)
+
+### [8 Stages of Fasting](./8_stages_of_fasting.md)
+
+### [NAVRATRI FAST](./navaratri_fast.md)
+
+### [NAVRATRI Meal Plan](./navaratri_meal_plan.md)
+
+[Lalit Kapoor - Health Benefits of Navratri Fast - “Curing Chronic Diseases”](https://youtu.be/-y9wQAVEoCk)
+
+### [COFFEE DURING FAST?](./coffee_during_fast.md)
+
+### [RAMADAN FASTING](./ramadan_fasting.md)
+
+### [SLEEP: Why it Matters](./sleep_why_it_matters.md)
+
+### [CIRCADIAN  RHYTHM](./circadian_rhythm.md)
+
+[Health lies in healthy circadian habits | Satchin Panda | TEDxBeaconStreet](https://youtu.be/erBJuxVR7IE)
+
+[MELATONIN](./melatonin.md)
+
+[PBWF in New York City](./pbwf_in_new_york_city.md)
+
+[NYC Doctors To Receive Free Plant-Based Nutrition Training Under $44M Medicine Program](https://plantbasednews.org/lifestyle/health/nyc-doctors-lifestyle-medicine-training/)
+
+### [PHYSICAL  ACTIVITY](./physical_activity.md)
+
+[How Much Should You Exercise?](https://youtu.be/Jhsc8-IIWFg)
+
+[Longer Life Within Walking Distance](https://youtu.be/nGEb3DCsklo)
+
+### [EMOTIONAL HEALTH](./emotional_health.md)
+
+[10 Mind-Blowing Benefits of Meditation](https://youtu.be/wXsxwIJnUJk)
+
+### [Yoga](./yoga.md)
+
+### [YOG](./yog.md)
+
+### [Life of Yogic Masters](./life_of_yogic_masters.md)
+
+### [THE UNKNOWN](./the_unknown.md)
+
+### [How to Quiten the Mind?](./how_to_quiten_the_mind.md)
+
+### [Synopsis Week-3](./synopsis_week_3.md)
+
+### [FAQs After Session - 3](./faqs_after_session_3.md)
+
+### [WHY no forwards without your accompanying comments?](./why_no_forwards_without_comments.md)
+
+### [Testimonials](./testimonials.md)
+
+[What The Health (Netflix-Documentary) -A must watch. What doctors don't say about your food?](https://youtu.be/KPD1oIKnnjs)
+
+[Death by Medicine a film by Gary Null](https://youtu.be/RwCUDCQMLwY)
+
+### [Doctors Advice On Medications](./doctors_advice_on_medication.md)
+
+### [In Defense of Doctors](./in_defense_of_doctors.md)
+
+### [MY TEACHERS](./my_teachers.md)
+
+### [WHAT IS NORMAL?](./what_is_normal.md)
+
+[What is Normal Blood Pressure?](https://youtu.be/rQKsn3QwPuo)
+
+### [PLACEBO & NOCEBO EFFECTS](./placebo_and_nocebo_effects.md)
+
+[Dr Bruce Lipton - Placebo Effect VS No-Cebo Effect](https://youtu.be/-jw00Pux5Fs)
+
+[The Powerful Placebo Effect in Modern Medicine](https://youtu.be/4uFmGqB1VAo)
+
+
+
+
 
 
 

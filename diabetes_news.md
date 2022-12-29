@@ -1,0 +1,1 @@
+I have always maintained that Type-2 diabetes can be reversed by following PBWF/IF/10K diet and lifestyle. Findings of a new study published on December 14 in the Endocrine Society’s Journal of Clinical Endocrinology & Metabolism has reached the same conclusion.

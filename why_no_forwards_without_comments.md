@@ -1,0 +1,7 @@
+# WHY no forwards without your accompanying comments?
+
+When you forward a long video or an article, as a moderator the onus is on me to make sure it is correct and worth following. One of the housekeeping rule in my health groups is to not forward any videos or articles without your detailed comments. I want to explain why I have this rule. 
+1. I have over 30,000 active members and it is physically impossible for me to watch every video you forward. Considering that you have already watched it, it is easy for you to highlight where there are differences from my recommendations. It makes it easy for me to respond. If there are no differences, you can simply say “came across this video and it concurs with Lalit’s recommendations.”
+2. As I had explained in my post in the very beginning “Conflicting views and videos”, for every video I post there are many which disagree with my views (which reflect the views of the PBWF doctors). There is too much money at stake and Food, Pharma and Health Care industries do a great job in pushing their products and services. I had also explained why Government and Media have a tendency to go along. 
+3. They do not have to debunk the PBWF recommendations, they just have to create a doubt and confuse you. 
+It is for these reasons that I have this housekeeping rule and I request all to follow it.

@@ -146,3 +146,40 @@ Only soluble extract can be used but generally not a good idea. Why not consume 
 The best way to self diagnose is to evaluate  diet and lifestyle on each of 14 recommendations, you will find your answers. Many people find, that when they do this self evaluation, they were non compliant much more than they thought. 
 
 2. In spite of my post on the very first day “One Diet for All Ills”, many of you still believe there should be a different diet for your illness. This isn’t so. Just follow all the guidelines to the best of your ability and you will notice the improvements.
+
+# Questsions from Whatsapp Group
+
+QUESTION: What reduction rate should we followed while going through weight reduction.
+Is there any adverse effect of reducing weight quickly while undergoing extreme strength training and diet control?
+
+ANSWER: I don’t suggest focusing on reduction rate. You focus on diet, your body will decide about the reduction rate.
+
+QUESTION: When I search Google, it doesnot show the amount of protein content which you mentioned rather it shows very less. Where am I getting it wrong? For spinach, watermelon, potato..where should I see?
+
+ANSWER: It depends what units. I talk about as % of total protein and not as grams.
+
+QUESTION: Is fish consumption ok?
+
+ANSWER: No. Definitely not if you are diseased and trying to recover. If you are otherwise healthy meaning not on any medications, you can have fresh water fish like salmon, as an exception, once a month or so.
+
+QUESTION: Is consuming  double toned milk(mother dairy) 1 glass without sugar with breakfast and 1 glass in evening is alright or giving up milk completely slowly should be the goal? Asking as this food habit has a strong hold.
+
+ANSWER: Toned milk is worse as it’s protein content as a % of total calories is even higher. 
+Please please please avoid all dairy products. The only product acceptable in moderation is ghee but only for those who are otherwise healthy.
+
+QUESTION: can you provide some inputs on Vermicili and macroni which are made from sooji.
+How healthy are they?
+
+ANSWER: They are okay for occasional consumption.
+
+QUESTION: how can I focus on my hair growth, especially facial hair as their growth is quite slow given my age.I have been eating veggies and oats primarily in the diet
+
+ANSWER:  don’t know, I am not a doctor. Eating veggies and oats is not enough. You must follow all 12 point guidelines.
+
+## General Comment
+
+There are still many in this group who think that I am some kind of a doctor who will provide a dietary solution to their unique health problems (symptoms). Please understand, that is not the case. I am not a doctor and I do not analyze your symptoms, I am a diet & lifestyle coach. and that is all I analyze. When you correct diet and lifestyle, the diseases and symptoms which are due to improper diet and lifestyle, known as lifestyle diseases or chronic diseases, reverse themselves. This healing is done by your body and it is unique to everyone because, even though genetically we are very similar, epigenetically we all are very different. To group people into one or three groups is only an approximation and any treatments based on that would only be approximate and likely to result in a hit or miss. This is common in all forms of treatments: allopathic, Ayurvedic, homeopathic etc. 
+There is always a bias to share successes, so when a person gets healed by a treatment, he shares that success story with many, even news media likes to publish such stories. When a person is not healed by that same treatment he doesn’t go around telling people about treatment’s failure and news media has little interest in publishing that story. It is as if they are saying, that the fact that your treatment did not succeed is not a big story, there are many people who are not cured by this treatment so they are not interested in publishing it. This bias against negative stories creates a false picture and misleads many to seek that treatment. As I had said in the very beginning, all science is imperfect including medical science, and we are continuously expanding our knowledge. Treatments designed based on that imperfect knowledge are also imperfect. Your body knows lot more than you give it credit for. It is as if all expert doctors are within your body and every second they are trying to decide the right course of action. All you need to do is to avoid hurting it by feeding unhealthy foods and provide hyper nutrition that it has been denied for a long time. 
+The recommendations made in this group work in a holistic fashion and apply to most. There is always a chance that few would not be able to cure the disease completely but that number is very small and is more of an exception than the rule. Once the body reaches breaking point, it is difficult to reverse. Even in those cases they are likely to get off medications and achieve an optimal state of health. We will cover this in two weeks.
+
+
